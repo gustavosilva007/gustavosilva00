@@ -1,7 +1,7 @@
 Perfil de Gustavo Gonçalves
 Nome Completo: Gustavo Gonçalves
 
-Data de Nascimento: 15 de março de 1985
+Data de Nascimento: 28/02/2007
 
 Local de Nascimento: São Paulo, Brasil
 
